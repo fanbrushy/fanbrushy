@@ -1,16 +1,36 @@
-## Hi there 👋
+![Fanpasslush (1)](https://github.com/user-attachments/assets/5ddf6d92-6ac3-4afe-814b-93a41accee91)
 
-<!--
-**fanbrushy/fanbrushy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# ➡️ most of my info is on my linktree!!
 
-Here are some ideas to get you started:
+https://linktr.ee/fanbrushy
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ships r okay!! (silvercandle is like the only exception im sorry)
+
+i love cuddling so feel free to!! (any amount of people is all right)
+
+inspo from my skins is fine just dont blatantly copy them
+
+int ^^
+
+# 💕 ships i really like (not in any specific order)
+- fanbrush (my favorite if you couldnt tell lol)
+- silverbrush
+- silverfan
+- fantube
+- testbulb
+- testbrush
+- silverfanbrush
+- fanbulb
+- lightbrush
+- flying buddies (paintbrush x lightbulb x test tube x fan) <3
+- fancase
+- paper x fan
+- cabtube
+
+and a few more but i forgor
+
+# 🐴 ponies i currently have (most to least used)
+- paintbrush (ii)
+- test tube (ii)
+- silver spoon (ii)
+- glitchy (c2bc)
