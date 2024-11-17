@@ -27,7 +27,7 @@ int ^^
 
 and a few more but i forgor
 
-# 🐴 ponies i currently have (most to least used)
+# 🐴 ponies i currently have
 - paintbrush (ii)
 - fan (ii)
 - test tube (ii)
