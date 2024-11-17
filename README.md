@@ -29,6 +29,7 @@ and a few more but i forgor
 
 # 🐴 ponies i currently have (most to least used)
 - paintbrush (ii)
+- fan (ii)
 - test tube (ii)
 - silver spoon (ii)
 - glitchy (c2bc)
