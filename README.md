@@ -27,7 +27,7 @@ int ^^
 
 and a few more but i forgor
 
-# 🐴 ponies i currently have
+# 🐴 ponies/cosplays i currently have
 - paintbrush (ii)
 - fan (ii)
 - test tube (ii)
