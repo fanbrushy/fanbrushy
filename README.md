@@ -1,6 +1,6 @@
 ![Fanpasslush (1)](https://github.com/user-attachments/assets/5ddf6d92-6ac3-4afe-814b-93a41accee91)
 
-# ➡️ most of my info is on my linktree!!
+# ➩ most of my info is on my linktree!!
 
 ships r okay!! (silvercandle is like the only exception im sorry)
 
@@ -10,7 +10,7 @@ inspo from my skins is fine just dont blatantly copy them
 
 int ^^
 
-# 💕 ships i really like (not in any specific order)
+# ♡ ships i really like (not in any specific order)
 - fanbrush (my favorite if you couldnt tell lol)
 - silverbrush
 - silverfan
@@ -27,7 +27,7 @@ int ^^
 
 and a few more but i forgor
 
-# 🐴 ponies/cosplays i currently have
+# ☆ ponies/cosplays i currently have
 - paintbrush (ii)
 - fan (ii)
 - test tube (ii)
