@@ -31,6 +31,7 @@ and a few more but i forgor
 - paintbrush (ii)
 - fan (ii)
 - test tube (ii)
+- lightbulb (ii)
 - silver spoon (ii)
 - glitchy (c2bc)
 #
