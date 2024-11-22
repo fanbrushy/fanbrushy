@@ -33,6 +33,7 @@ and a few more but i forgor
 - test tube (ii)
 - lightbulb (ii)
 - silver spoon (ii)
+- FANtastic (pseudonomics)
 - glitchy (c2bc)
 #
 
