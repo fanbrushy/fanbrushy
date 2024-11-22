@@ -8,7 +8,7 @@ i love cuddling so feel free to!! (any amount of people is all right)
 
 inspo from my skins is fine just dont blatantly copy them
 
-int ^^
+please int i really enjoy talking to people ^^
 
 # ♡ ships i really like (not in any specific order)
 - fanbrush (my favorite if you couldnt tell lol)
