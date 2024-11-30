@@ -23,7 +23,7 @@ please int i really enjoy talking to people ^^
 - flying buddies (paintbrush x lightbulb x test tube x fan) <3
 - fancase
 - paper x fan
-- cabtube
+- knifan (lots of fan ships i know......)
 
 and a few more but i forgor
 
