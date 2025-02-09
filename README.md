@@ -17,7 +17,7 @@ current favorite interest is cookie run
 - shadowvanilla 
 - burningmilk
 
-and a few more but i forgor
+and a lot more but i forgor
 
 # ☆ ponies/cosplays i currently have
 - paintbrush (ii)
