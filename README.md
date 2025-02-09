@@ -31,8 +31,4 @@ and a few more but i forgor
 - glitchy (c2bc)
 - glory (wings of fire)
 - shadow milk (crk)
-
-![image](https://github.com/user-attachments/assets/0d3e3501-8c4d-4ec1-9550-4426a033fc4c)
-
-❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
-
+ 
