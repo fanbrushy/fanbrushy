@@ -1,6 +1,6 @@
 # ➩ most of my info is on my linktree!!
 
-ships r okay!! (silvercandle is like the only exception im sorry)
+ships r okay!!
 
 i love cuddling so feel free to!! (any amount of people is all right)
 
