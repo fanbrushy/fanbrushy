@@ -1,5 +1,3 @@
-![fan](https://github.com/user-attachments/assets/5ddf6d92-6ac3-4afe-814b-93a41accee91)
-
 # ➩ most of my info is on my linktree!!
 
 ships r okay!! (silvercandle is like the only exception im sorry)
