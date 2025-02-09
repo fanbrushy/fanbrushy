@@ -4,8 +4,6 @@ ships r okay
 
 i love cuddling so feel free to!! (any amount of people is all right)
 
-inspo from my skins is fine just dont blatantly copy them
-
 please int i really enjoy talking to people ^^
 
 current favorite interest is cookie run
