@@ -2,7 +2,7 @@
 
 ships r okay 
 
-i love cuddling so feel free to!! (any amount of people is all right)
+i love cuddling so feel free to do so with me anytime (any amount of people is all right)
 
 please int i really enjoy talking to people ^^
 
