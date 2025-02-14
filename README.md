@@ -29,4 +29,5 @@ and a lot more but i forgor
 - glitchy (c2bc)
 - glory (wings of fire)
 - shadow milk cookie (crk)
+- truthless recluse (crk)
  
