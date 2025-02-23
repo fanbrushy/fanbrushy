@@ -4,9 +4,9 @@ ships r okay
 
 i love cuddling so feel free to do so with me anytime (any amount of people is all right)
 
-please int i really enjoy talking to people ^^
+please int, i really enjoy talking to people ^^
 
-current favorite interest is cookie run
+current favorite interest is cookie run yet again
 
 # ♡ ships i really like (regarding the cosplays i've made, not in any specific order)
 - fanbrush 
@@ -16,6 +16,7 @@ current favorite interest is cookie run
 - testbulb
 - shadowvanilla 
 - burningmilk
+- sapphirebell
 
 and a lot more but i forgor
 
@@ -30,4 +31,5 @@ and a lot more but i forgor
 - glory (wings of fire)
 - shadow milk cookie (crk)
 - truthless recluse (crk)
+- black sapphire (crk)
  
