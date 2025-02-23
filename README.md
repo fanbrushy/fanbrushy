@@ -4,9 +4,9 @@ ships r okay
 
 i love cuddling so feel free to do so with me anytime (any amount of people is all right)
 
-please int, i really enjoy talking to people ^^
+please int i really enjoy talking to people ^^
 
-current favorite interest is cookie run yet again
+current favorite interest is cookie run kingdom yet again
 
 # ♡ ships i really like (regarding the cosplays i've made, not in any specific order)
 - fanbrush 
