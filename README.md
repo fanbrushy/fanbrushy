@@ -1,4 +1,4 @@
-# ➩ most of my info is on my linktree!!
+# most of my info is on my linktree!!
 
 ships r okay 
 
@@ -8,31 +8,5 @@ please int i really enjoy talking to people ^^
 
 you can take inspo from my skins just dont blatantly copy them
 
-current favorite interest is cookie run kingdom yet again
-
-# ♡ ships i really like (regarding the cosplays i've made, not in any specific order)
-- fanbrush 
-- silverbrush
-- fantube
-- cabtube
-- testbulb
-- shadowvanilla 
-- burningmilk
-- sapphirebell
-- shadowflour
-
-and a lot more but i forgor
-
-# ☆ ponies/cosplays i currently have
-- paintbrush (ii)
-- fan (ii)
-- test tube (ii)
-- lightbulb (ii)
-- silver spoon (ii)
-- FANtastic (pseudonomics)
-- glitchy (c2bc)
-- glory (wings of fire)
-- shadow milk cookie (crk) (both original & sage of truth)
-- truthless recluse (crk)
-- black sapphire (crk)
+current favorite interest is cookie run kingdom yet again 
  
