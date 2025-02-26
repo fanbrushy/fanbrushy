@@ -29,7 +29,7 @@ and a lot more but i forgor
 - FANtastic (pseudonomics)
 - glitchy (c2bc)
 - glory (wings of fire)
-- shadow milk cookie (crk)
+- shadow milk cookie (crk) (both original & sage of truth)
 - truthless recluse (crk)
 - black sapphire (crk)
  
