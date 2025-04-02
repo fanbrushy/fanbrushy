@@ -12,4 +12,4 @@ you can take inspo from my skins just dont blatantly copy them
 
 current favorite interest is cookie run kingdom yet again 
  
-i like shadowvanilla a completely normal amount
+i like truthlessage a completely normal amount
