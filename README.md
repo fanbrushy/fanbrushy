@@ -12,6 +12,8 @@ you can take inspo from my skins just dont blatantly copy them
 
 current favorite interest is cookie run kingdom yet again 
 
+im scared of all of you please excuse how socially inept i am
+
  
 **‼️ i like shadowvanilla ‼️**
 
