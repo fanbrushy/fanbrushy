@@ -4,7 +4,7 @@
 </p>
 
  ⠀
-###### <p align=center> icky ⠀ノ ⠀fan </p>  
+##### <p align=center> icky ⠀ノ ⠀fan </p>  
 ##### <p align=center> 【⠀sign [atapage](https://fanbrushy.atabook.org/)⠀|⠀[strawpage](https://fanbrushy.straw.page/)⠀】 </p> 
 
 ⠀
