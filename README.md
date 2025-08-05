@@ -1,6 +1,6 @@
 <p align=center> ‧̩̥·̥̣̥¸.·´`·.¸¸ ˟̣̥̣̥ ¸¸.·´`·.¸·̥̣̥¸.·´`·.¸¸ ˟̣̥̣̥ ¸¸.·´`·.¸̟̣̟̣̇¸.·´`·.¸¸ ˟̣̥̣̥ ¸¸.·´`·.¸·̥̣̥¸.·´`·.¸¸ ˟̣̥̣̥ ¸¸.·´`·.¸‧̩̥·̥̣̥ </p>  
 <p align="center">
-  <img src="https://i.postimg.cc/T2kR6Frp/Cookie0605s01-hang.gif" width="350">
+  <img src="https://i.postimg.cc/T2kR6Frp/Cookie0605s01-hang.gif" width="320">
 </p>
 
  ⠀
