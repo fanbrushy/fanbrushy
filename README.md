@@ -1,10 +1,11 @@
+<p align=center> ‧̩̥·̥̣̥¸.·´`·.¸¸ ˟̣̥̣̥ ¸¸.·´`·.¸·̥̣̥¸.·´`·.¸¸ ˟̣̥̣̥ ¸¸.·´`·.¸̟̣̟̣̇¸.·´`·.¸¸ ˟̣̥̣̥ ¸¸.·´`·.¸·̥̣̥¸.·´`·.¸¸ ˟̣̥̣̥ ¸¸.·´`·.¸‧̩̥·̥̣̥ </p>  
 <p align="center">
   <img src="https://i.postimg.cc/T2kR6Frp/Cookie0605s01-hang.gif" width="350">
 </p>
 
  ⠀
-#### <p align=center> icky / fan </p>  
-#### <p align=center> 【 sign [atapage](https://fanbrushy.atabook.org/) | [strawpage](https://fanbrushy.straw.page/) 】 </p> 
+#### <p align=center> icky ⠀ノ ⠀fan </p>  
+#### <p align=center> 【⠀sign [atapage](https://fanbrushy.atabook.org/)⠀|⠀[strawpage](https://fanbrushy.straw.page/)⠀】 </p> 
 
 ⠀
 ⠀
@@ -12,7 +13,7 @@
 ⠀
 ⠀
 
- #### <p align=center> 【 info 】 </p>  
+ #### <p align=center> 【⠀info⠀】 </p>  
 ##### <p align="center"> ships r okay with me ! </p>
 ##### <p align="center"> i love cuddling so feel free to do so with me anytime (any amount of people is all right) </p>
 ##### <p align="center"> w2i preferred since i'm usually offtab </p>
