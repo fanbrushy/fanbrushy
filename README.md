@@ -10,8 +10,7 @@
 <a href="https://livetrafficfeed.com/live/github.com" id="LTF_ht_href" target="_blank"><img id="LTF_ht_src" src="https://livetrafficfeed.com/static/hitcounter/hitcounter.gif?d=github.com&c=33a4a58f5f13615b46dfcfdd61f71350&s=1&m=5&st=1&u=0&timezone=America%2FToronto&r=499318918" alt="Hit Counter" width="50"</a>
 </p>
 ⠀
-  
-⠀
+ 
 ***
 ⠀
 ⠀
