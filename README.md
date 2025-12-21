@@ -6,8 +6,11 @@
  ⠀
 ##### <p align=center> icky ⠀ノ ⠀fan </p>  
 ##### <p align=center> 【⠀sign [atapage](https://fanbrushy.atabook.org/)⠀|⠀[strawpage](https://fanbrushy.straw.page/)⠀】 </p> 
-
+<p align="center">
+<a href="https://livetrafficfeed.com/live/github.com" id="LTF_ht_href" target="_blank"><img id="LTF_ht_src" src="https://livetrafficfeed.com/static/hitcounter/hitcounter.gif?d=github.com&c=33a4a58f5f13615b46dfcfdd61f71350&s=1&m=5&st=1&u=0&timezone=America%2FToronto&r=499318918" alt="Hit Counter" width="50"</a>
+</p>
 ⠀
+  
 ⠀
 ***
 ⠀
@@ -23,6 +26,6 @@
 ##### <p align="center"> but also please int i'm a severely lonesome enbyfailure who wants to have fun ❤️‍🩹 </p>
 
 #### <p align=center> **i like shadowvanilla !!!** </p> 
-##### <p align="center"> ⤷⠀if it makes you uncomfy i won't interact with you and it'd be greatly appreciated if you don't harass me over it lmao </p> 
+##### <p align="center"> ⤷⠀if it makes you uncomfy i won't interact with you and it'd be greatly appreciated if you don't harass me over it lmao </p>  
 ⠀
 ⠀
