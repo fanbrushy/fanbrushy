@@ -23,5 +23,3 @@
 ##### <p align="center"> current favorite interests are **jackpot crash course** and cookie run kingdom </p>
 ##### <p align="center"> i'm scared of all of you please excuse how socially inept i am </p>
 ##### <p align="center"> but also please int i'm a severely lonesome enbyfailure who wants to have fun ❤️‍🩹 </p>=
-⠀
-⠀
