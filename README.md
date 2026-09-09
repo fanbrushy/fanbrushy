@@ -16,7 +16,7 @@
 ⠀
 
  #### <p align=center> 【⠀info⠀】 </p>  
-##### <p align="center"> ships r okay with me ! just note i am a minor [15] </p>
+##### <p align="center"> ships r okay with me !  </p>
 ##### <p align="center"> i love cuddling so feel free to do so with me anytime (any amount of people is all right) </p>
 ##### <p align="center"> w2i preferred since i'm usually offtab </p>
 ##### <p align="center"> you can take inspo from my skins just dont blatantly copy them </p>
