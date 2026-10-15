@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.postimg.cc/mZcR9CQg/Jackpot-Crash-Course.png" width="250">
+  <img src="https://i.postimg.cc/rwwfdCrd/2026-10-14-0xf-Kleki.png" width="100">
 </p>
 
  ⠀
