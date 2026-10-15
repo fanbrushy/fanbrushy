@@ -1,7 +1,6 @@
 <p align="center">
   <img src="https://i.postimg.cc/rwwfdCrd/2026-10-14-0xf-Kleki.png" width="100"> <img src="https://i.postimg.cc/GtMs6YhS/2026-10-14-0xk-Kleki.png" width="100">
 
- ⠀
 ##### <p align=center> icky ⠀ノ ⠀fan </p>  
 ##### <p align=center> 【⠀sign [atabook](https://fanbrushy.atabook.org/)⠀|⠀[strawpage](https://fanbrushy.straw.page/)⠀】 </p>  
 <p align="center">
