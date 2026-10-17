@@ -15,7 +15,7 @@
  #### <p align=center> 【⠀info⠀】 </p>  
 ##### <p align="center"> i love cuddling so feel free to do so with me anytime (any amount of people is all right) </p>
 ##### <p align="center"> w2i preferred since i'm usually offtab </p>
-##### <p align="center"> you can take inspo from my skins just pleas don't blatantly copy them </p>
+##### <p align="center"> you can take inspo from my skins just pleaseehjjh don't blatantly copy them </p>
 ##### <p align="center"> current favorite interests are studio investigrave (mainly **jackpot crash course**) and crk </p>
 ##### <p align="center"> i'm scared of all of you please excuse how socially inept i am </p>
 ##### <p align="center"> but also please int i'm a severely lonesome enbyfailure who wants to have fun ❤️‍🩹 </p>=
