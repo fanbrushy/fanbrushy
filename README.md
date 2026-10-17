@@ -12,7 +12,8 @@
 ⠀
 ⠀
 
- #### <p align=center> 【⠀info⠀】 </p>  
+ #### <p align=center> 【⠀info⠀】 </p>   
+##### <p align="center"> they / them , est timezone
 ##### <p align="center"> i love cuddling so feel free to do so with me anytime (any amount of people is all right) </p>
 ##### <p align="center"> w2i preferred since i'm usually offtab </p>
 ##### <p align="center"> you can take inspo from my skins just pleaseehjjh don't blatantly copy them </p>
